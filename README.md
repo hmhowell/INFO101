@@ -1,1 +1,1 @@
-My name is Hailey.
+My name is Hailey. I like to paint.
